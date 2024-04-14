@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Itay6235
-- 👀 I’m interested in idk
-- 🌱 I’m currently learning idk
-- 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me idk
+- 👀 I’m interested in: idk
+- 🌱 I’m currently learning: idk
+- 💞️ I’m looking to collaborate on: idk
+- 📫 How to reach me: idk
 - 😄 Pronouns: idk
 - ⚡ Fun fact: idk
 
